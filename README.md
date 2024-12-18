@@ -1,5 +1,5 @@
 ## Antivirus,
-CleanMyMac
+CleanMyMac & Apple as maintaner it,, antivirus and Yosterdzy.
 
 <!--
 **luthfina16/luthfina16** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
