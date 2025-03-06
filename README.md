@@ -1,5 +1,5 @@
 ## TPM,NoddosM0n1y#Army,INstaller,Kernel NEXTGEN OS Windows,DOS,Faximile,CPU,LOwLevellanguage,Cycyptography,crypto,1,0,Sc,A.I,Kernel,CPU,Gpu.INF,REG,Analog TV for faximile,Supercomputer,intel Cable,16bit,X86,x32,x64,RAM,almost alls for faximile data,NO pelet in 1GPRS(analog),Edge,HTTP,HTML,BLOGSPOT,2G,3G,4G,%G,WIFI7 law communications, anadigitat,Internetumn momes, too much hutang mummies and pyramid your graveyard,A.I,Quantum,Timetravels not allowed for us., FIREWALL us mine
-CleanMyMac & Apple as maintaner it,, antivirus and Yosterdzy. halalin my IInternets miliseceonds.
+CleanMyMac & Apple as maintaner it,, antivirus and Yosterdzy. halalin my IInternets everymilisecond i sude 8MBPS wifi @myworks too continue codigmiliseceonds.
 Apple is our developer apss, 100G%20Networking%20Technology%20Overview%20-%20Slides%20-%20Toronto%20(August%202016).pdf
 
 <!--
